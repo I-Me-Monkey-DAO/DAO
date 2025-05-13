@@ -1,7 +1,7 @@
 
 # IMeMonkey DAO: Proposal for Genesis Formation
 
-![IMeMonkey Cartoon](A_watercolor_cartoon_illustration_in_the_style_of_.png)
+![IMeMonkey Cartoon](https://github.com/I-Me-Monkey-DAO/DAO/blob/main/file_00000000be0061f59acfdad1d0503930.png)
 
 ## Proposal Title:
 **Genesis of IMeMonkey DAO – Digital Sanctuary & Eden Bridge Initiative**
