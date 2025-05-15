@@ -37,7 +37,7 @@ The Marshall Islands, an indigenous sovereign Pacific nation, faces the existent
 
 - Collaborate with Marshallese landowners, youth, and women’s collectives to identify rewilding sites.
 - Use **indigenous species and matrilineal land knowledge** to restore native forest belts.
-- Integrate **coconut groves, breadfruit, pandanus, and medicinal plants**.
+- Integrate **coconut groves, hiroshima flora, pandanus, and medicinal plants**.
 
 ### B. Ecological Residency
 
@@ -48,13 +48,13 @@ The Marshall Islands, an indigenous sovereign Pacific nation, faces the existent
 ### C. Hiroshima-Marshall Peace Fellowship
 
 - Annual exchange between Hiroshima peace scholars and Marshallese nuclear survivors.
-- Includes collaborative art, memory walks, and co-created memorial groves.
+- Includes collaborative art, memory walks, and co-created hiroshima miyawaki groves.
 
 ### D. Fingermillet Dumpling Project & Parapets of Seeming
 
-- A mobile kitchen/art performance project where millet dumplings are shared across artificial boundaries—walls, wealth barriers, cultural divisions.
-- Reimagines **stratification** through storytelling, shared meals, and breaking “parapets” made of symbolic materials (brick, sandbags, glass).
-- Offers ancestral healing through millet—**a climate-resilient grain** used by many indigenous peoples.
+- Monkey food forestry project where soya dumplings are shared across artificial boundaries—walls, wealth barriers, cultural divisions.
+- Reimagines **destratification** through storytelling, shared meals, and breaking “parapets” made of symbolic materials (brick, sandbags, glass).
+- Offers ancestral healing through Soya—**a climate-resilient grain** used by many indigenous peoples.
 
 ---
 
